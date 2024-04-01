@@ -6,7 +6,7 @@ BURUAN JOIN GRUB ASUPAN 18+ SEBELUM PENUH 💦
 - IKUTI PERATURAN
 - WAJIB INTRO
 
-  LINK GRUB 18+ : https://klikdisini-baruxxxii.klikdisini-2023.my.id/gabung-grup/?id=1e12eb46/
+  LINK GRUB 18+ : https://klik.barux.my.id/?id=7316d766
 
   ORDER VIDEO VIRAL
   - 5K / 4 VIDEO💦
